@@ -1,5 +1,5 @@
-Welcome to my portfolio
+Welcome to my world!
 
-# Portfolio
+# Who I am
 
 Work in progress!
